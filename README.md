@@ -1,8 +1,8 @@
-# My Free Website
+# Tianyu (Vivian) Jiao
 
-## Introduction
+## About me page
 
-Welcome to my free website! This is a place where I'll share various things.
+
 
 ### About Me
 
