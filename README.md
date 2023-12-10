@@ -12,4 +12,5 @@ I'm passionate about technology, programming, and learning new things.
 
 ### Recent Posts
 
-![Alt text](file:///Users/tianyujiao/Pictures/Photos%20Library.photoslibrary/resources/derivatives/A/A7966F03-E194-4255-B548-2EE090EB9C3E_1_105_c.jpeg)
+![Alt text](![E6B5B9AC-5C68-47D6-BBAA-2AFBD12BC757_1_105_c](https://github.com/tianyuj34/tianyuj34.github.io/assets/143345651/5012e088-8b1b-4b5d-94b9-d43fe4a2e43b)
+)
