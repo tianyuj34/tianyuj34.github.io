@@ -7,7 +7,7 @@
 
 ### About Me
 
-I'm passionate about technology, programming, and learning new things.
+I'm passionate about technology, programming, fashion, art, and learning new things!
 
 ## Blog Posts
 
