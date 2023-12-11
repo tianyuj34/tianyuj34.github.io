@@ -9,7 +9,7 @@
 
 I'm passionate about technology, programming, fashion, art, and learning new things!
 
-## Blog Posts
 
-### Recent Posts
+
+## Recent Posts
 
