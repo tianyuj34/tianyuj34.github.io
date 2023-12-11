@@ -11,5 +11,8 @@ I'm passionate about technology, programming, fashion, art, and learning new thi
 
 
 
-## Recent Posts
+## Contact
+9292087777
+tianyuj67@gmail.com
+Instagram: @ttnnyyii
 
