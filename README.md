@@ -1,6 +1,6 @@
 # Tianyu (Vivian) Jiao
 
-## About me page
+## Engineering student, STEM tutor, Fashion model, Aspiring actress
 [Fashion Modeling](modeling.md) <br>
 [Civil Engineering](civileng.md)
 
