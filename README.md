@@ -1,7 +1,7 @@
 # Tianyu (Vivian) Jiao
 
 ## About me page
-[About Page](modeling.md) <br>
+[Fashion Modeling](modeling.md) <br>
 [Civil Engineering](civileng.md)
 
 
